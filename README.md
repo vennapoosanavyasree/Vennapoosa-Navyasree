@@ -1,3 +1,2 @@
 # Vennapoosa-Navyasree
-Navyasree
 Vennapoosa
